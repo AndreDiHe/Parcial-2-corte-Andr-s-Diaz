@@ -1,0 +1,1 @@
+# Parcial-2-corte-Andr-s-Diaz
